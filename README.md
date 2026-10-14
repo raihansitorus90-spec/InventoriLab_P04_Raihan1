@@ -1,2 +1,2 @@
-# InventoriLab_P04_Raihan1
+# InventoriLab_P04_Raihan Alamsyah Sitorus
 
